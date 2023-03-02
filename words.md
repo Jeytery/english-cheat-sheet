@@ -53,5 +53,4 @@
 - precise - точный
 - make sure - убедить
 - emphasis - удеелять внимание
-- 
--
+- whether - ???
