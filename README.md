@@ -23,3 +23,4 @@
 - such a/an, so
 - take bring
 - this/those/те
+- adverb/abjective comparison nuances
