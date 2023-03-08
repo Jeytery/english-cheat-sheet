@@ -54,3 +54,12 @@
 - make sure - убедить
 - emphasis - удеелять внимание
 - whether - ???
+- cub - детеныш 
+- captive-born - рожденный в плену
+- facilty - средство
+- stemps - стебли
+- shoots - побеги
+- claim - требовать
+- frequently - часто
+- worshiping - поклонение
+- involve - 
